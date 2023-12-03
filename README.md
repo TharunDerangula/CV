@@ -1,2 +1,2 @@
 # CV
-https://tharunderangula.github.io/CV/
+https://tharunp7777.github.io/CV/
